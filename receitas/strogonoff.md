@@ -1,0 +1,1 @@
+# Strogonoff de Frango <img src="/home/fabiano/Imagens/Photos/IMG-20200809-WA0033.jpeg" alt="20" style="zoom:5%;" />
